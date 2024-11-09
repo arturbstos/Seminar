@@ -1,2 +1,2 @@
-# seminar
-SEE Group Work
+# Seminar in European Economics
+
